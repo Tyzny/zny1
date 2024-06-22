@@ -1,2 +1,2 @@
 # zny1
-随便看看
+just for fun
